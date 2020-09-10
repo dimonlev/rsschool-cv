@@ -61,3 +61,5 @@ BELARUSIAN STATE ACADEMY OF COMMUNICATIONS (2007)
 Work in team, good commications.
 #### English
 Pre-Intermediate
+#### Chinese
+Elementary
