@@ -1,7 +1,7 @@
 # Dmitry Levkovich
 ___
 #### Contacts
-* **Mobile:** +375-25-619-11-77
+* **Mobile:** +375-25-619-11-77, +7-926-030-70-56
 * **E-mail:** dzmitry.liaukovich@gmail.com
 * **Telegram:** @ecstas1
 #### Summary
