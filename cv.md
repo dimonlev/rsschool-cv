@@ -7,6 +7,7 @@
 - **Mobile:** +375-25-619-11-77
 - **E-mail:** dzmitry.liaukovich@gmail.com
 - **Telegram:** @ecstas1
+- **Discord:** @ecstas1#6769
 
 #### Summary
 
